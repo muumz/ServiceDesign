@@ -12,3 +12,5 @@ of service design principles in addressing real-world challenges, thereby empowe
 better achieve its social and economic goals. 
 
 https://kaisaotterklau.wixsite.com/sampola-vol2 
+
+Posters more in detail explaining the work and presentation can be found from branch called files.
