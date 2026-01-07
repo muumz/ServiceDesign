@@ -10,3 +10,5 @@ developed strategic solutions to boost Sampola's market visibility, operational 
 community impact. Our work culminated in a final presentation, showcasing the practical application 
 of service design principles in addressing real-world challenges, thereby empowering Sampola to 
 better achieve its social and economic goals. 
+
+https://kaisaotterklau.wixsite.com/sampola-vol2 
